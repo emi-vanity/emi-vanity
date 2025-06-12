@@ -9,3 +9,7 @@
 ![tumblr_lsf2w76eth1qhwcy0540](https://github.com/user-attachments/assets/4baba3f8-63d6-4936-9ddb-d901a998da35)❅- i heavily fw gojori/gojohime! :3
 
 ![uno_divider_by_raid0u-d5ch5z0](https://github.com/user-attachments/assets/2113f240-c9b8-403a-82a1-728a927d925d)
+
+---
+>- these **fakers** are **Pissing** me off.
+>- im the original ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ utahime iori.
